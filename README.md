@@ -1,2 +1,2 @@
-# Placement-Assignment_-Sreelakshmi-Gopalakrishnan
+# Placement-Assignment_Sreelakshmi-Gopalakrishnan
 Ineuron Job Guarantee Program Course
